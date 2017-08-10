@@ -1,4 +1,4 @@
-        <blockquote><center><div class="zagolov"> For download <b>Asus z92j driver win7</b> click the button</div><br />
+<blockquote><center><div class="zagolov"> For download <b>Asus z92j driver win7</b> click the button</div><br />
 <div style="text-align: center;"><a href="http://it1337.ru/getgit1/asus z92j driver win7"><img src="images/Download-Button1.png" alt="asus z92j driver win7" width="370" border="0"></a></div><br /></center></blockquote>
 <br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br />
 <div class="content">
